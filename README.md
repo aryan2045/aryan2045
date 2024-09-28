@@ -5,5 +5,4 @@
 - 📫 How to reach me aryankulshrestha102@gmail.com
 - 😄 Pronouns: He/Her
 - ⚡ Fun fact: Computer Science is Booming.
-[image](https://github.com/user-attachments/assets/23039e55-5787-4d48-941a-ddc3c7a306c3)
 
