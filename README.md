@@ -5,5 +5,3 @@
 - 📫 How to reach me aryankulshrestha102@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Computer Science is Booming.
-
-![cute-badminton-player-hitting-shuttlecock_514170-264](https://github.com/user-attachments/assets/124d33ad-c069-4ea6-ade0-424faa1a4486)
